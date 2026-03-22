@@ -34,8 +34,8 @@
 ---
 
 ## 🔗 Connect with me
-- 💼 LinkedIn: (add your link)
-- 📧 Email: your_email@gmail.com
+- 💼 LinkedIn: [(https://www.linkedin.com/in/sajlendra-pandey-37378627b/)]
+- 📧 Email: sajlendrapandey2022@gmail.com
 
 ---
 
